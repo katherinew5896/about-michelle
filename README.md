@@ -11,6 +11,7 @@ Things I like to do:
 3. Music
 4. Sleeping
 5. Travel
+6. Eating
 
 #### CONTACTS
 `michellel308@nycstudents.net`
